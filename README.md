@@ -69,7 +69,10 @@ An AI-focused project aimed at identifying potentially fraudulent job postings a
 
 I’m always interested in learning, collaborating on projects, and exploring new opportunities in technology.
 
-**LinkedIn:** Add your LinkedIn profile here
+**LinkedIn:** www.linkedin.com/in/rithanya-gopalsamy-766896334
+**Email:** rithanyag2006@gmail.com
+
+
 **GitHub:** You're already here! ✨
 
 ---
