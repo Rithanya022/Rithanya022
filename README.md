@@ -1,4 +1,4 @@
-# Hi, I'm Rithanya G 🌷🌙
+# Heyyy, I'm Rithanyahhhh G 🌷🌙
 
 ### Aspiring Software Developer | AI & Data Science Enthusiast
 
